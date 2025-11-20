@@ -1,1 +1,1 @@
-# O-Organograma-da-Loucura
+O Organograma da Loucura
